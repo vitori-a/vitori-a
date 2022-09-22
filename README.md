@@ -1,4 +1,4 @@
-### Oie! Eu sou a Vitória Natasha 😎✌
+### Oie! Eu sou a Vitória 😎✌
 
 - 🔭 Procurando aprender cada dia mais...
 - 📕 Estudante de Ciência da Computação | UNICID
